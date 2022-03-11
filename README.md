@@ -1,0 +1,1 @@
+# second_in_class_Lo_Shu_Magic_Square
